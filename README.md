@@ -12,7 +12,9 @@ Por otra parte, hacia finales del 2018, comencé la carrera de Psicología en la
 Comencé la carrera de psicología por puro interés, y aunque actualmente no se encuentre entre mis prioridades, considero que enfatizó aún más la capacidad de escucha y comunicación con personas, y por lo tanto, la capacidad de trabajar en equipo.
 
 Contactame!
+
 Mail: marianoribas98@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/mariano-ribas-525173125/
 
 TECNOLOGÍAS
